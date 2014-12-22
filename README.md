@@ -35,11 +35,17 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The triall of true teares. Or the summons to repentance whereby the secure sinner is taught how to e
+
+1. To the Right worſhipfull, the Ladie Elizabeth Greynuile; all happines in this life, and eternall felicity in the life to come.
+
 #####Body#####
 
+1. THE TRYAL OF TRVE TEARES. OR THE SOMMONS to Repentance.
+FIrſt, here is expreſſed the occaſion.Secondly, the impulſiue cauſes.That which miniſtred occaſion t
+    _ Pars Secunda.
+
 #####Back#####
-The triall of true teares. Or the summons to repentance whereby the secure sinner is taught how to e
+LONDON, Printed by Thomas Creede, for Arthur Iohnſon, dwelling neere the great North doore of S. Pau
 **Types of content**
 
   * There are 6 **verse** lines!
